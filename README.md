@@ -22,7 +22,7 @@ Could I be a YouTuber now? Are these good?
 
 ![6](https://user-images.githubusercontent.com/19922556/217971969-3863e971-db4d-4cae-af75-2f1a3124c744.png)
 
-![7](https://user-images.githubusercontent.com/19922556/217971979-76864712-d8a4-4330-9927-6b8a91a5d5f6.png)
+![7](https://user-images.githubusercontent.com/19922556/218892525-545005c3-38fe-4c55-8bb2-64e74a8ea090.png)
 
 ![8](https://user-images.githubusercontent.com/19922556/217971985-0960427b-e01e-4f2c-bf5d-770d5db2ec6a.png)
 
